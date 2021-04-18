@@ -1,1 +1,0 @@
-# mahirumich.github.io
